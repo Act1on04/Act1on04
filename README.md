@@ -1,4 +1,4 @@
-Hi, I’m @Act1on04. 
+Hi, I’m @Act1on04. 17y.o. 8k mmr. GOd of Magnus
 
 Maybe I do everything upside down, but when this world turns upside down, I will boldly stand on my feet.
 
